@@ -1,4 +1,4 @@
-#  
+#  exclusive Scripts for blox fruits is the best blox fruits Script, featuring no clip and anti-ban. Safe and powerful for all your needs.
 
 
 
